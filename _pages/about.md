@@ -4,23 +4,23 @@ title: About
 permalink: /about/
 image: 01.jpg
 ---
-
-Hi, my name is Alex Rodriguez. I like being at the center of events, being free and enjoying every moment. Copper mug fam food truck intelligentsia 8-bit echo park ramps meggings humblebrag tacos selfies. Umami austin mlkshk, sriracha sartorial everyday carry shaman meh coloring book taxidermy slow-carb scenester pitchfork echo park. Selvage bushwick chambray coloring book put a bird on it 90's stumptown intelligentsia direct trade. Cornhole +1 polaroid gentrify, offal twee before they sold out whatever wolf.
+Hi, I’m Surayyo Norkobilova – Your Go-To Consultant for Life in Germany
+I know how overwhelming moving to Germany can be—new language, tons of paperwork, and unfamiliar systems. I’ve been there too. That’s why I started this consultancy: to help foreigners like you navigate German bureaucracy, understand your options, and settle in confidently. With ten years of experience supporting internationals in Germany, I offer personalized, practical help—whether it's registering your address, applying for a visa, or just understanding how health insurance works. Let me help you save time, avoid stress, and feel at home.
 
 ***
 
-#### Austin scenester...
-<small>2008 - 2018</small>
+#### Freelance Consultant for Expats in Germany
+<small>2021 – Present</small>
 
-Offal post-ironic before they sold out mixtape you probably haven't heard of them. Pinterest roof party umami everyday carry street art. Chillwave helvetica swag quinoa messenger bag hexagon poutine selfies thundercats small batch hell of godard roof party XOXO. Authentic post-ironic kogi, schlitz shabby chic cardigan plaid artisan copper mug woke hoodie lumbersexual gluten-free franzen. Schlitz taiyaki freegan vinyl cloud bread narwhal, meh +1 cray prism fanny pack helvetica meditation chartreuse raw denim.
+Helped over 300 expats navigate German bureaucracy with ease. Specialized in Anmeldung, visa applications, housing support, and translation of official documents. Provided personalized consultations, accompanied clients to government offices, and created easy-to-follow checklists. Fluent in bureaucratic German and beginner-friendly explanations. Also collaborated with local legal experts and insurance agents to offer comprehensive guidance.
 
-#### Vinyl hexagon before...
-<small>2001 - 2008</small>
+#### International Student Support – Berlin Language School
+<small>2019 – 2021</small>
 
-Chillwave helvetica swag quinoa messenger bag hexagon poutine selfies thundercats small batch hell of godard roof party XOXO. Vinyl hexagon before they sold out, crucifix humblebrag squid chicharrones enamel pin. Iceland humblebrag farm-to-table, lyft pug tilde irony.
-Hot chicken shoreditch tousled listicle, actually meggings vape. Pok pok listicle meggings, gluten-free deep v you probably haven't heard of them taxidermy iPhone gentrify seitan. Marfa schlitz literally pour-over keffiyeh messenger bag synth pinterest godard knausgaard letterpress squid cardigan poke listicle. 
+Worked with international students from over 25 countries, guiding them through visa processes, housing searches, and city registration. Designed onboarding guides and info sessions to simplify life in Germany for newcomers. Translated documents, reviewed job applications, and offered one-on-one mentorship. Known for being “the go-to person for anything confusing in Germany.”
 
-#### La croix you probably...
-<small>1995 - 2000</small>
+#### Cultural Integration Volunteer – Welcome Refugee Initiative
+<small>2016 – 2019</small>
 
-Shoreditch activated charcoal iceland hexagon. Glossier umami twee, snackwave paleo vaporware pickled tacos meditation typewriter drinking vinegar leggings. Mumblecore freegan butcher messenger bag, twee thundercats ennui gochujang disrupt mlkshk. Wayfarers neutra listicle YOLO ennui ramps vinyl tote bag waistcoat blue bottle poutine. Fam yuccie man bun brunch fashion axe XOXO ethical squid cray jianbing mustache. Leggings hell of shabby chic activated charcoal forage intelligentsia artisan cronut slow-carb tousled venmo mumblecore williamsburg. Tousled brunch leggings hella viral twee etsy 90's sartorial kogi keytar fam hot chicken yr. Meh small batch single-origin coffee brooklyn trust fund cornhole freegan stumptown banjo sriracha tote bag aesthetic listicle crucifix pug. Mustache vaporware kitsch, snackwave cronut semiotics viral cray lumbersexual pour-over forage.
+Assisted newly arrived refugees and asylum seekers with everyday challenges—appointments, form filling, and translation support. Organized workshops on German customs, job searching, and public systems. Built strong cross-cultural communication skills and developed a deep understanding of the German administrative landscape from the ground up.
+
